@@ -1,0 +1,1 @@
+# foto_kegiatan-min2.html
